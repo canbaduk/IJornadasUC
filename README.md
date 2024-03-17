@@ -10,3 +10,6 @@
   - [Pandanet](https://pandanet-igs.com/communities/pandanet)
   - [Fox weiqi](https://www.foxwq.com/)
   - [Tygem baduk](http://www.tygembaduk.com/epoint/tpoint.asp)
+
+
+Más contenido proximamente
